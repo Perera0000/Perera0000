@@ -133,9 +133,9 @@ Published through trendFluence – Department of Marketing Management, Rajarata 
 
 ## 📫 Connect With Me
 
-- LinkedIn: https://linkedin.com/in/YOUR-LINKEDIN
-- GitHub: https://github.com/YOUR-USERNAME
-- Email: your.email@gmail.com
+- LinkedIn: https://www.linkedin.com/in/mahesh-p-perera/
+- GitHub: https://github.com/Perera0000
+- Email: maheshperera.ofcl@gmail.com
 
 ---
 
